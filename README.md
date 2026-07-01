@@ -20,6 +20,7 @@ Detalhamento circuito no wiredPanda:
 https://youtu.be/wEY5FKezwKM
 
 Video pitch:
+https://youtu.be/UVbnjCyJ4HA
 
 ## Mais detalhes
 
